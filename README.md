@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @deca7777
+- A Student in South Korea.
