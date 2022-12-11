@@ -1,4 +1,4 @@
-## Introduction
+# Introduction
 **Deca**, A Science High School Student in South Korea
 <br><br>
 🌏 Website｜https://deca7777.com
